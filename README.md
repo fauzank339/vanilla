@@ -9,6 +9,8 @@ Refer the issues, or make an issue yourself if you need help.
 Vipul Gupta  
 @vipulgupta2048  
 [Mixster](www.mixstersite.wordpress.com)
+Would like an opportunity to work on a project with you.
+btw new to github@fauzank339
 
 Here are my contributions to this project - ;-)
 @omi10859
